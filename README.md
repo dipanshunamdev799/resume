@@ -1,4 +1,4 @@
-# [Your Name]
+# Dipanshu Namdev
 [Your Address] | [City, State, ZIP Code] | [Your Phone Number] | [Your Email Address] | [LinkedIn Profile] | [Personal Website/Portfolio]
 
 ---
