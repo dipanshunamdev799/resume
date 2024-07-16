@@ -1,5 +1,5 @@
 # Dipanshu Namdev
-[Your Address] | [City, State, ZIP Code] | [Your Phone Number] | [Your Email Address] | [LinkedIn Profile] | [Personal Website/Portfolio]
+36, Dayanand Marg | Neemuch(458441), Madhya Pradesh, India | 9981330410 | dipanshunamdev799@gmail.com | [LinkedIn Profile] | [Personal Website/Portfolio]
 
 ---
 
